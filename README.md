@@ -1,0 +1,2 @@
+# Oancea_Andreea_ActivitateCTS2024
+Repository_ActivitateCTS2024 Oancea_Andreea-Iuliana_Grupa 1117
